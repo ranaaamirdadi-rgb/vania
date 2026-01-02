@@ -1,0 +1,1 @@
+A girl with blonde hair and blue eyes. Her face has some white spots, but she’s still very beautiful. She wears modest clothes but has a nice and attractive figure. Create several trendy videos and photos with her.
